@@ -1,5 +1,5 @@
 ## Hi there 👋
-### I'm a Senior Writer
+### I'm an Information System Student
 
 ### 🚀 About
 - 🎓 Majoring in Computer Science (Class of 2021)  
